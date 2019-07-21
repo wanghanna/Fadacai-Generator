@@ -1,4 +1,4 @@
-# 發大財產生器
+# 瑜瑜發大財產生器
 跟著韓總一起讓高雄發大財!  
 - [點我立刻發大財](https://rogeraabbccdd.github.io/Fadacai-Generator/)  
 - [巴哈討論串](https://forum.gamer.com.tw/C.php?bsn=60076&snA=5109856)
